@@ -82,7 +82,7 @@ Provide a polished resume or LinkedIn profile tailored to your career goals.
 Looking to improve your resume or LinkedIn profile?
 
 **Get Started:**  
-[Submit Your Information](https://tally.so/r/2EpAbL)
+[Submit Your Information](https://tally.so/r/obWA5x)
 
 ---
 
